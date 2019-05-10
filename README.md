@@ -1,0 +1,1 @@
+# myvkcoin.github.io
